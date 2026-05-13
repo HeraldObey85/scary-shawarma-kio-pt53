@@ -1,4 +1,4 @@
-#  
+#  scary shawarma kiosk vip Script is the best scary shawarma kiosk Script, featuring auto-collect and undetectable. Safe and powerful for all your
 
 
 
